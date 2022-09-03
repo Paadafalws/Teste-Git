@@ -20,3 +20,13 @@ yhdfh
 dfg
 pau no seu cukkkkkkkkkkkkkkkkkkkkkkkkklllllllllllllllllkkjjjjjjjjjjj
 ldskfldkf
+
+
+
+
+
+
+,xlzc,\zxlçck,x\zolck,´\zxcx
+\zx
+A\SD
+ASDPLASP´DKP
